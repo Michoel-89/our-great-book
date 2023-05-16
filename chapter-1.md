@@ -1,0 +1,4 @@
+But, like most politicians, he promised more than he could deliver.
+That's right, baby. I ain't your loverboy Flexo, the guy you love so much. You even love anyone pretending to be him! Say it in Russian! Daylight and everything. Soothe us with sweet lies. This is the worst kind of discrimination: the kind against me!
+
+Hey, guess what you're accessories to. File not found. I don't 'need' to drink. I can quit anytime I want! Throw her in the brig. Oh God, what have I done? I barely knew Philip, but as a clergyman I have no problem telling his most intimate friends all about him.
